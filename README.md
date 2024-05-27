@@ -1,2 +1,2 @@
-# escolappz24
-Projetos nas aulas de Tecnologia e Robótica do ano de 2024
+### Boas-Vindas ao meu perfil 🎠 
+Meu nome é: Rafaela
